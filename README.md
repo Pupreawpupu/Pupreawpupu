@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Pupu ============================================================================================================================  Research and Data Analysis, Master's degree of Economics, Thammasat University ------------------------------------------------------------------------------  I'm new one here. Fighting! Susu  * 🌍  I'm based in Bangkok * ✉️  You can contact me at [p.pathomporn@tetralab.tech](mailto:p.pathomporn@tetralab.tech)
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Pupu ============================================================================================================================  Research and Data Analysis, Master's degree of Economics, Thammasat University ------------------------------------------------------------------------------ I'm new one here. Fighting! Susu  * 🌍  I'm based in Bangkok * ✉️  You can contact me at [p.pathomporn@tetralab.tech](mailto:p.pathomporn@tetralab.tech)
 
 ### Skills  
 
