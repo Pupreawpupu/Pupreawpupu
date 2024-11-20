@@ -2,6 +2,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Research and Data Analysis, Master's degree of Economics, Thammasat University.
 
 Based in Bangkok
+
 ✉️  Contact me at [p.pathomporn@tetralab.tech](mailto:p.pathomporn@tetralab.tech)
 
 ### Skills  
