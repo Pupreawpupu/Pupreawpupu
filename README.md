@@ -1,4 +1,7 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Pupu 
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)
+
+Pupreaw Pathomporn Pupunja
+
 Research and Data Analysis, Master's degree of Economics, Thammasat University.
 
 Based in Bangkok
